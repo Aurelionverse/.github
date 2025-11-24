@@ -38,9 +38,9 @@ Nuestro equipo asegura que las integraciones y herramientas web cumplan con los 
 
 📢 Mantente conectado
 
-Discord oficial: [enlace del servidor]
+Discord oficial: https://discord.gg/YPh9PC3vdb
 
-Correo de contacto público: aurelionnetwork@gmail.com
+Correo de contacto público: aurelionverse@gmail.com
 
 Próximamente más canales de noticias y actualizaciones para la comunidad.
 
